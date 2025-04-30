@@ -1,1 +1,1 @@
-Thaanks to @qoomon
+Creds to @qoomon
